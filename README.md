@@ -4,7 +4,7 @@
 
 ##  About
 
-Nowadays I am studying studying computer technical course at SATC❤️ 
+Nowadays I am studying studying computer technical course at SATC
  <br>
 
 ## Github Stats 
